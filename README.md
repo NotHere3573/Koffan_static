@@ -1,1 +1,0 @@
-# Koffan_static
